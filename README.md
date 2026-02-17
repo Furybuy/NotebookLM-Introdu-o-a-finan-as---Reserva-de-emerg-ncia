@@ -1,0 +1,1 @@
+# NotebookLM-Introdu-o-a-finan-as---Reserva-de-emerg-ncia
